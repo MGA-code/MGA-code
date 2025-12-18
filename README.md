@@ -2,7 +2,7 @@
 - 👀 I’m interested in creating ideas for small useful apps ... 
 - 🌱 I’m currently learning how this all works :-) 
 - 💞️ I’m looking to collaborate on different business stuff ...
-- 📫 How to reach me ... under construction
+- 📫 How to reach me ... https://controlling.team
 - 😄 Pronouns: ... your highness🤴🏻
 - ⚡ Fun fact: being bald is not a crime ;-) 
 
